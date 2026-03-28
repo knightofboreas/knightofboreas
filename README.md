@@ -14,7 +14,7 @@ interests: genshin, hsr, splatoon, needy streamer overload, paswg, evangelion, d
 
 i also play a bit of stardew valley, crk/ovenbreak, limbus company and waterpark sim but not much
 
-my fave song artists : ghost and pals, maretu, utsu-p, slipknot, rammstein and linkin park (yeah ik corny emo shit i cant help it)
+my fave song artists : maretu, utsu-p, slipknot, rammstein and linkin park (yeah ik corny emo shit i cant help it)
 
 
 dni: basic dni, trump supporters, proshippers, fujoshits (and also people that hate straight ships ur so corny) and under 16... other than that i block freely so just don't be a weirdo
