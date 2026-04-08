@@ -1,4 +1,4 @@
-hi im a trans gay guy who likes anime guys and has fat social anxiety
+hi im a trans gay guy who likes anime guys and has fat social anxiety (I CANT EVEN KEEP A CONVO GOING)
 
 pls don't start drama with me i dont handle it well
 
