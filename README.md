@@ -12,7 +12,7 @@ tbh i just ship my fave characters even if they never spoke to eachother (as lon
 
 interests: genshin, dramatical murder, hsr, splatoon, needy streamer overload, paswg, evangelion, death note, vocaloid, prsk, alnstg(fandom dni), hetalia, serial experiments lain, puella magi madoka magica, stanley parable, portal, to your eternity, persona 5 (didn't finish it yet though), bayonetta
 
-i also play a bit of stardew valley, crk/ovenbreak, limbus company and waterpark sim but not much
+i also play a bit of stardew valley and limbus company but not much
 
 my fave song artists : maretu, utsu-p, slipknot, rammstein and linkin park (yeah ik corny emo shit i cant help it)
 
